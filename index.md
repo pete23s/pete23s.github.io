@@ -1,1 +1,1 @@
-I have a blog!!
+A student's journey through the thick and thin.
